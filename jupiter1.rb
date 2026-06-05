@@ -1,11 +1,8 @@
 
 cmnx
 smslm
-smlsm
-smlxm
-smklxmn
-nxkxn
-cnck
+cnjcn
+cnckn
 cnkcn
-cmcm
-cncj
+cnkcn
+smlsm
